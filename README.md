@@ -1,3 +1,1 @@
 # Les Aventures Luna-tiques du Pingouin à Roulettes
-
-"Les Aventures Luna-tiques du Pingouin à Roulettes" racontent comment ce pingouin intrépide a fait la découverte la plus incroyable de sa vie en explorant la Lune à grande vitesse sur ses patins à roulettes, où il a rencontré une tribu de lapins extraterrestres amateurs de danse hip-hop et a fini par organiser une fête de danse interplanétaire qui a duré des nuits entières.

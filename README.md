@@ -21,3 +21,4 @@ Maintenant capable de voler, le Pingouin à Roulettes s'éleva dans le ciel éto
 
 Pourtant, malgré ses nouvelles aventures incroyables, le Pingouin à Roulettes ne pouvait s'empêcher de penser à son chez-lui. Il prit la décision de revenir sur Terre, mais il était résolu à apporter avec lui l'esprit d'aventure et d'émerveillement qu'il avait découvert dans l'univers infini.
 
+Et il glissa et glissa et glissa encore sur la **banquise** avec ses *roulettes*, sentant le vent le caresser. Il ne se lassera *jamais* d'explorer ces terres gelées à la recherche de **sensations nouvelles**. *Malheureusement* toute bonne chose a une fin, et ce jour là ce **fut la _fin_ de ses roulettes**.

@@ -11,3 +11,5 @@ La compétition fut épique, mais le Pingouin, avec son style unique, remporta l
 Son prochain arrêt fut sur une planète aquatique peuplée de créatures marines. Là-bas, il découvrit une toute nouvelle forme de danse sous-marine et se joignit à une grande célébration sous les vagues.
 
 Le Pingouin à Roulettes, désormais célèbre dans toute la galaxie, continua son voyage interstellaire. Il se rendit sur une planète recouverte de jungles luxuriantes, où les habitants étaient des singes savants. Ils le défiaient dans une compétition de danse dans la canopée des arbres les plus hauts, où les lianes servaient de partenaires de danse.
+
+Au fil des siècles, l'explorateur immortel devient un gardien solitaire du parchemin, le protégeant des convoitises malveillantes. Sa quête intérieure persiste, façonnant sa sagesse et sa compassion, tandis que le monde change autour de lui. Finalement, il comprend que le véritable pouvoir réside dans la capacité à choisir la lumière dans chaque cœur, assurant ainsi la préservation de l'équilibre entre les forces de l'ombre et de la lumière pour l'éternité.

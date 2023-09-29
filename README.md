@@ -9,3 +9,5 @@ tention de tous les habitants de la planète rouge.
 La compétition fut épique, mais le Pingouin, avec son style unique, remporta la première place. En tant que champion interplanétaire de danse, il décida de parcourir l'univers pour partager sa passion avec d'autres civilisations.
 
 Son prochain arrêt fut sur une planète aquatique peuplée de créatures marines. Là-bas, il découvrit une toute nouvelle forme de danse sous-marine et se joignit à une grande célébration sous les vagues.
+
+Le Pingouin à Roulettes, désormais célèbre dans toute la galaxie, continua son voyage interstellaire. Il se rendit sur une planète recouverte de jungles luxuriantes, où les habitants étaient des singes savants. Ils le défiaient dans une compétition de danse dans la canopée des arbres les plus hauts, où les lianes servaient de partenaires de danse.

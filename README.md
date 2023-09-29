@@ -13,3 +13,11 @@ Son prochain arrêt fut sur une planète aquatique peuplée de créatures marine
 Le Pingouin à Roulettes, désormais célèbre dans toute la galaxie, continua son voyage interstellaire. Il se rendit sur une planète recouverte de jungles luxuriantes, où les habitants étaient des singes savants. Ils le défiaient dans une compétition de danse dans la canopée des arbres les plus hauts, où les lianes servaient de partenaires de danse.
 
 Au fil des siècles, l'explorateur immortel devient un gardien solitaire du parchemin, le protégeant des convoitises malveillantes. Sa quête intérieure persiste, façonnant sa sagesse et sa compassion, tandis que le monde change autour de lui. Finalement, il comprend que le véritable pouvoir réside dans la capacité à choisir la lumière dans chaque cœur, assurant ainsi la préservation de l'équilibre entre les forces de l'ombre et de la lumière pour l'éternité.
+
+
+Dans un monde étrange, le Pingouin à Roulettes poursuivit ses aventures lunatiques à travers des contrées mystérieuses. Sa roue cassée avait été réparée par un magicien farfelu, lui donnant de nouveaux pouvoirs.
+
+Maintenant capable de voler, le Pingouin à Roulettes s'éleva dans le ciel étoilé, découvrant des planètes lointaines et des créatures extraterrestres. Il devint un héros intergalactique, répandant le rire et la joie partout où il passait.
+
+Pourtant, malgré ses nouvelles aventures incroyables, le Pingouin à Roulettes ne pouvait s'empêcher de penser à son chez-lui. Il prit la décision de revenir sur Terre, mais il était résolu à apporter avec lui l'esprit d'aventure et d'émerveillement qu'il avait découvert dans l'univers infini.
+
